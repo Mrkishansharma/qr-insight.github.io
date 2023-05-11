@@ -1,0 +1,1 @@
+# qr-insight.github.io
